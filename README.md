@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PaulinaSky
+- 👀 I’m interested in games and art
+- 🌱 I’m currently learning japanese and italian
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me on discord: PaulinaS#1862
